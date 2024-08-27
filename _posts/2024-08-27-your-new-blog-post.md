@@ -1,4 +1,4 @@
-##skiming
+## Skimming
 
 Barthes’ description in The Pleasure of the Text of the pleasure of skimming has struck me again on each of my sallies into that work. That an author who I initially came to partly out of a self-flagellatory hyper intellectualism, would admit to so base a pleasure as skimming was at first confusing, and now, as I have begun to embrace the spirit of that text, celebratory. To me the written word is heavy. I have developed a taste for this heaviness; I rejoice in the surface of the text which I am pressed down upon. But the perforatory pleasure, which to me is less of narrative satisfaction than of free association, is for me the domain of the spoken word. 
 
