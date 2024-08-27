@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+I will use this page to give the writings I put on it some sence of competion, and as a way to practace being comfortable publishing "bad art".
