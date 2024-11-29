@@ -1,4 +1,4 @@
-##New England Sakura
+## New England Sakura
 
 Top of that big sycamore by the water, bark flakes away in dapples with the season. Sycamore balls and last brittle leaves against bright blue look like that kind of trite, procedural art there are tutorials for on tick tock, or like a masterpiece print of cherry blossoms. New England sakura. The kind of thing that, if it was art, I could only worship or completely dismiss. But these balls are framed only against the sky, and only because I turned my head upwards to isolate them. 
    
