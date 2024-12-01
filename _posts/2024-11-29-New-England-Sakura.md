@@ -17,7 +17,7 @@ Top of that big sycamore by the water, bark flakes away in dapples with the seas
      
   The geese pass now before the sun, behind the screen of hanging posers. Just ahead of the blind area, they create a different frequency of ripples in the water, extending white gold in their sequined suits. —
 
-—-But back on the ground, New England is a practical place. The geese are still there, now in a less organised grouped, loitering in the now long shadows across the pond. They probably aren't even migratory geese, fat from people feeding them and luxurious summers spent shitting on suburban lawns— descendants of captives of 1920s waterfowl hunters, says mass.gov. Even so, walking  home with my fuzzy guitar music in headphones, I'm in a good mood, and I smile at the shimmering walls of willow leaves that hang over the water. 
+—-But back on the ground, New England is a practical place. The geese are still there, now in a less organised grouped, loitering in the now long shadows across the pond. They probably aren't even migratory geese, fat from people feeding them and luxurious summers spent shitting on suburban lawns— descendants of captives of 1920s waterfowl hunters, says mass.gov. Even so, walking  home with my fuzzy guitar music in headphones, I'm in a good mood, and I smile at the shimmering vail of willow leaves over the water. 
 
 
 
