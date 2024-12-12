@@ -1,4 +1,4 @@
-## Cafe Window
+## [1] Cafe Window
 
 A great little still life beside me: a novel with a faded sea blue cover; a generic, reusable plastic cup; my croissant in its self regarding folds on its plastic plate; a large latte— whole milk is fine, yes; a downturned face with foamy cap and streaming trail where I had sipped at it, passing in easy strokes across a tan sky; my cute brown wrap around sunglasses folded up, holding in their arms a big button I found on the ground by the pond. All grey outfit and a sleapy rainbow of a scarf. I sip further on my latte, and tear the golden ruffles. Outside the bike rack makes clean shadows on the ground. 
 
